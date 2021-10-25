@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gazathug
-- 👀 I’m interested in ... beautiful freaky ebony women
+- 👀 I’m interested in ... beautiful freaky women
 - 🌱 I’m currently learning ... more about myself along with blacl history 
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... #876-798-3698
